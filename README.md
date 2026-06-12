@@ -1,1 +1,3 @@
+![](images/virtual-howard-beale.jpg)
+
 are you mad as hell...
